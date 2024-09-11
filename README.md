@@ -13,3 +13,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 
 00001116721934sp@al.educacao.sp.gov.br
+
+![](https://tenor.com/pt-BR/view/clapping-congrats-sarcastic-clap-leonardo-di-caprio-gif-14425232)
